@@ -1,1 +1,1 @@
-# [Elisaveta Kirichenko ](https://Lsitsu.github.io/rsschool-cv/cv)
+(https://Lsitsu.github.io/rsschool-cv/cv)
